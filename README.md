@@ -10,7 +10,7 @@
 
 
 
-// 🎀 MOMO MD WA BOT. 🎀  //
+// 🎀 MOMO MD WA BOT DONT CLONE IS ENCRYPTED. 🎀  //
 
 <a href="https://whatsapp.com/channel/0029Vaoi15YAojYuT1dU8q2H"><img src="https://img.shields.io/badge/Join%20Our%20WhatsApp%20Channel-green"  width="350"></a>
 
